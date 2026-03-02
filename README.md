@@ -1,2 +1,2 @@
 # GDUT-401_Laboratory-Admissions
-李攀硕老师小组招新
+实验室招新相关视频
